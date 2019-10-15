@@ -1,0 +1,1 @@
+# clubedefinancas-equity
